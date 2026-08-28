@@ -10,7 +10,7 @@
 - White mushrooms, 50g
 - White beans, canned, 200g
 
-## Directions
+## Instructions
 1. Half or slice the mushrooms. Halve the tomato.
 2. Heat up the beans over low in a small pot. Keep warm on low.
 3. Cook the bacon, flipping as needed. Remove the bacon from the pan.
