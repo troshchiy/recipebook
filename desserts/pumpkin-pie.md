@@ -20,6 +20,7 @@
 - 1 tsp ginger, ground or juice
 - 0.5 tsp ground cloves
 - 2 eggs
+- Pumpkin
 
 
 ## Instructions
