@@ -3,7 +3,7 @@
 
 ## Ingredients
 
-- Bacun, 2 strips
+- Bacon, 2 strips
 - Eggs, 2 large
 - Tomatoes, 1 medium whole
 - White bread, 1 slice
