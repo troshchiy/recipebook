@@ -8,7 +8,7 @@
 - Tomatoes, 1 medium whole
 - White bread, 1 slice
 - White mushrooms, 50g
-- White beans, canned, 200g
+- White beans, canned, 100g
 
 ## Instructions
 1. Half or slice the mushrooms. Halve the tomato.
